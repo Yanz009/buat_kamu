@@ -1,0 +1,2 @@
+# buat_kamu
+Bucin
